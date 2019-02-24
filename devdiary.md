@@ -24,8 +24,6 @@ Finally reinstalled Windows today. It was bugged from the start but I didn't car
 I had to get it working again. Perhaps I'll model some more later today. I'm not sure about the way the hoses should look like.
 Straw roofs? Rooftile roofs? Wooden rooftile roofs? No idea.
 
-Yesss. Without the crashes, 
-
 ![House1](https://i.imgur.com/ZHzNRqU.png)
 
 ![House2](https://i.imgur.com/lJm8CRw.png)
