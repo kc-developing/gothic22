@@ -29,3 +29,7 @@ Straw roofs? Rooftile roofs? Wooden rooftile roofs? No idea.
 ![House2](https://i.imgur.com/lJm8CRw.png)
 
 ![House3](https://i.imgur.com/fala30w.png)
+
+Well that's slightly worrying. I tried to make this house a bit fucked up. But it's not nearly as fucked as in Gothic. The beams... aren't right. Spent a lot of time on something that came out wrong. I should have looked at the role model a bit more often:
+
+![Orlan](http://mondgesaenge.de/G2ADB/screens/orte/taverne.jpg)
