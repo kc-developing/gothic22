@@ -1,4 +1,4 @@
-23rd Feb
+**23rd Feb**
 
 Started working on the landscape. I'm going to treat this like a Bob Ross painting and put my money where my mouth is. 
 The mind will fill any lacking details. Must prevent burning myself out even more. I'll work on it when I want, no forcing.
@@ -18,7 +18,7 @@ Found the old houses. They were really basic but with some modifications they'll
 
 Ok no. Not reusing old houses. These look like city houses, I want a primitive village.
 
-24th Feb
+**24th Feb**
 
 Finally reinstalled Windows today. It was bugged from the start but I didn't care for months. Now for deving, 
 I had to get it working again. Perhaps I'll model some more later today. I'm not sure about the way the hoses should look like.
