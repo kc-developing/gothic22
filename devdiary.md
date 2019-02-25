@@ -33,3 +33,11 @@ Straw roofs? Rooftile roofs? Wooden rooftile roofs? No idea.
 Well that's slightly worrying. I tried to make this house a bit fucked up. But it's not nearly as fucked as in Gothic. The beams... aren't right. Spent a lot of time on something that came out wrong. I should have looked at the role model a bit more often:
 
 ![Orlan](http://mondgesaenge.de/G2ADB/screens/orte/taverne.jpg)
+
+**25 Feb**
+
+Let's not get lost in perfectionism, huh? Doesn't mean I can magically work at lightspeed. But I think tomorrow the tavern will be done. I'm happy I decided to make it bigger, this way I have enough space for the poor people's bedrooms and the suits. Actually there should be a sleeping hall too for the really poor people. Maybe I can turn one suit into the sleeping hall.
+
+Also need to make it look shabbier tomorrow, though maybe I won't reach Gothic's level of shabbiness... will have to see. From shabbiness comes coziness. And perhaps I'll add a stable or some other building outside to make it look less rectangle-shaped.
+
+![House4](https://i.imgur.com/W1yryOk.png)
