@@ -18,6 +18,8 @@ Found the old houses. They were really basic but with some modifications they'll
 
 Ok no. Not reusing old houses. These look like city houses, I want a primitive village.
 
+
+
 **24th Feb**
 
 Finally reinstalled Windows today. It was bugged from the start but I didn't care for months. Now for deving, 
@@ -34,10 +36,14 @@ Well that's slightly worrying. I tried to make this house a bit fucked up. But i
 
 ![Orlan](http://mondgesaenge.de/G2ADB/screens/orte/taverne.jpg)
 
+
+
 **25 Feb**
 
-Let's not get lost in perfectionism, huh? Doesn't mean I can magically work at lightspeed. But I think tomorrow the tavern will be done. I'm happy I decided to make it bigger, this way I have enough space for the poor people's bedrooms and the suits. Actually there should be a sleeping hall too for the really poor people. Maybe I can turn one suit into the sleeping hall.
+Let's not get lost in perfectionism, huh? Doesn't mean I can magically work at lightspeed. But I think tomorrow the tavern will be done. I'm happy I decided to make it bigger, this way I have enough space for the poor people's bedrooms and the suits. Actually there should be a sleeping hall too for the really poor people. Maybe I can turn one of the suits into the sleeping hall... that actually sounds like a decent idea, except I'm not sure who wants to sleep in a suit that has a whole group of people sleeping in the next room.
 
 Also need to make it look shabbier tomorrow, though maybe I won't reach Gothic's level of shabbiness... will have to see. From shabbiness comes coziness. And perhaps I'll add a stable or some other building outside to make it look less rectangle-shaped.
 
 ![House4](https://i.imgur.com/W1yryOk.png)
+
+![House5](https://i.imgur.com/iLm0v54.png)
