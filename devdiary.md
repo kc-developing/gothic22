@@ -47,3 +47,7 @@ Also need to make it look shabbier tomorrow, though maybe I won't reach Gothic's
 ![House4](https://i.imgur.com/W1yryOk.png)
 
 ![House5](https://i.imgur.com/iLm0v54.png)
+
+**26 Feb**
+
+What a shit day. But let's get started. Perhaps I can finish this tavern today. Furniture is scheduled for tomorrow.
