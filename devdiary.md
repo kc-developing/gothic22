@@ -48,11 +48,11 @@ Also need to make it look shabbier tomorrow, though maybe I won't reach Gothic's
 
 ![House5](https://i.imgur.com/iLm0v54.png)
 
-**26rtheb**
+**26th Feb**
 
 What a shit day. But let's get started. Perhaps I can finish this tavern today. Furniture is scheduled for tomorrow.
 
-**27theb**
+**27th Feb**
 
 Whew. I'll have to clean this up tomorrow.
 
@@ -63,3 +63,5 @@ Whew. I'll have to clean this up tomorrow.
 ![House8](https://i.imgur.com/rn1eRCw.png)
 
 ![House9](https://i.imgur.com/joS0oTO.jpg)
+
+Also you're a lousy audience, soon as I'm confident enough, I'll ditch you.
