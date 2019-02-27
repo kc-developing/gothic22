@@ -38,7 +38,7 @@ Well that's slightly worrying. I tried to make this house a bit fucked up. But i
 
 
 
-**25 Feb**
+**25th Feb**
 
 Let's not get lost in perfectionism, huh? Doesn't mean I can magically work at lightspeed. But I think tomorrow the tavern will be done. I'm happy I decided to make it bigger, this way I have enough space for the poor people's bedrooms and the suits. Actually there should be a sleeping hall too for the really poor people. Maybe I can turn one of the suits into the sleeping hall... that actually sounds like a decent idea, except I'm not sure who wants to sleep in a suit that has a whole group of people sleeping in the next room.
 
@@ -48,6 +48,18 @@ Also need to make it look shabbier tomorrow, though maybe I won't reach Gothic's
 
 ![House5](https://i.imgur.com/iLm0v54.png)
 
-**26 Feb**
+**26rtheb**
 
 What a shit day. But let's get started. Perhaps I can finish this tavern today. Furniture is scheduled for tomorrow.
+
+**27theb**
+
+Whew. I'll have to clean this up tomorrow.
+
+![House6](https://i.imgur.com/zsifGem.png)
+
+![House7](https://i.imgur.com/4rad3Fy.png)
+
+![House8](https://i.imgur.com/rn1eRCw.png)
+
+![House9](https://i.imgur.com/joS0oTO.jpg)
