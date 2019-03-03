@@ -65,3 +65,17 @@ Whew. I'll have to clean this up tomorrow.
 ![House9](https://i.imgur.com/joS0oTO.jpg)
 
 Also you're a lousy audience, soon as I'm confident enough, I'll ditch you.
+
+**4th March**
+
+Think I'm getting tired of writing a diary. Every fucking time.
+
+![House10](https://i.imgur.com/HuTfN3T.png)
+
+![House11](https://i.imgur.com/CMWAie8.png)
+
+![House12](https://i.imgur.com/1c5leah.png)
+
+![House13](https://i.imgur.com/4oS48A7.png)
+
+
