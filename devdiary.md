@@ -79,3 +79,6 @@ Think I'm getting tired of writing a diary. Every fucking time.
 ![House13](https://i.imgur.com/4oS48A7.png)
 
 
+**5th March** 
+
+I need a texturer. Oh god... socialising.
