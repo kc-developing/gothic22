@@ -82,3 +82,7 @@ Think I'm getting tired of writing a diary. Every fucking time.
 **5th March** 
 
 I need a texturer. Oh god... socialising.
+
+**6th March**
+
+Still not sure about the texturer but will make trees next. Too tired now.
