@@ -94,16 +94,27 @@ Long break. I had real life stuff to do and this is only a hobby.
 I recovered some files and found the gods of my game world from an earlier design. The names could (and perhaps should) be changed later.
 
 Gromor x War & Honour
+
 Noric x Thievery, Lies, Stealth and Night
+
 Praia x Nature, Earth & Hunt
+
 Olfir x Water & Wind & Seafare and storms
+
 Nilos x Death & Sleep
+
 Traven x Travel, Trading & Hospitality
+
 Amiel x Farming, Healing and druids
+
 Angerim x Craftmanship and mining
+
 Imroth x Fire & Justice
+
 Azurus x Science & Art (Science? Really? What was I smoking when I came up with this?)
+
 Naris x Magic & Alchemy
+
 Mara x Sun, moon & seasons
 
 Malach - Lord of evil
